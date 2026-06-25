@@ -2,9 +2,9 @@
 
 ## 👨‍💻 Author
 
-**Jahid**
+**Jahid**,  **whatsapp: 8801309495010**
 
-**whatsapp: 8801309495010**
+
 
 
 
